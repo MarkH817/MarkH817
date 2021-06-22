@@ -1,3 +1,3 @@
-# Mark Hernandez
+# Mark Hernandez (they/them)
 
-## Software Developer @ gWorks | JavaScript & Web Enthusiast | Gentle Bi | Non-Binary (They/Them) | Really Enjoys Some Spaghetti
+## Software Developer | JavaScript & Web Enthusiast | Gentle Bi | Non-Binary | Really Enjoys Some Spaghetti
