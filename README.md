@@ -1,3 +1,3 @@
 # Mark Hernandez (they/them)
 
-## Software Developer | JavaScript & Web Enthusiast | Gentle Bi | Non-Binary | Really Enjoys Some Spaghetti
+## Software Developer | JavaScript & Web Enthusiast | Queer | Really Enjoys Some Spaghetti
